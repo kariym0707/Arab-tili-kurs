@@ -1,2 +1,2 @@
 # Arab-tili-kurs
-Arab tilini oʻrhanish uchun 
+Arab tilini oʻrganish uchun 
